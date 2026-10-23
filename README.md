@@ -1,0 +1,1 @@
+[![Reviewed on ScriptBlox](https://scriptblox.com/badge/UPD-7-Anime-Dice-KEYLESS-Visual-Spawner-Jp-Gamepass-Units-232070)](https://scriptblox.com/script/UPD-7-Anime-Dice-KEYLESS-Visual-Spawner-Jp-Gamepass-Units-232070)
